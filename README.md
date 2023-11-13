@@ -1,6 +1,6 @@
 ## 백송연
 
-<img src="C:\Marketing-Web-Admin-System\KakaoTalk_20231113_151240419.jpg">
+![Alt text] (1.jpg)
 
 
 MBTI
