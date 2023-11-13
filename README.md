@@ -1,6 +1,12 @@
 ## 백송연
 
-![Alt text] (1.jpg)
+![Alt text](1.jpg)
+
+<img src=" ">
+
+블로그
+----
+    https://xoxoxoxox.tistory.com/
 
 
 MBTI
